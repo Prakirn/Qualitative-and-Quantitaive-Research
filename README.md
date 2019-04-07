@@ -1,1 +1,1 @@
-# Qualitative-and-Quantitaive-Research
+# Quantitative and Qualitative Research

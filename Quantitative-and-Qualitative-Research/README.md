@@ -1,1 +1,0 @@
-# Quantitative and Qualitative Research
